@@ -19,3 +19,21 @@
 <strong>Задание № 18: </strong>![5264805735487889875](https://github.com/user-attachments/assets/8a6f0dd8-1bbc-4838-845b-14458fb235e9)
 <strong>Задание № 19: </strong>![5264805735487889874](https://github.com/user-attachments/assets/24ebadc1-d24e-457e-a443-90dcb031049c)
 <strong>Задание № 20: </strong>![5264805735487889873](https://github.com/user-attachments/assets/1c87ae19-bbe7-482a-b5ca-df63e2130f55)
+<strong>Задание № 21: </strong>![1](https://github.com/user-attachments/assets/6f3a6e54-2407-40bb-89e3-f2a1cf677555)
+
+<strong>Задание № 22: </strong>![2](https://github.com/user-attachments/assets/ec6726ad-0feb-41a9-8f92-a049b8d87c2f)
+
+<strong>Задание № 23: </strong>![3](https://github.com/user-attachments/assets/34cde1b1-4fe3-494f-a8ca-cf005a9b3eec)
+
+<strong>Задание № 24: </strong>![4](https://github.com/user-attachments/assets/2c979313-a59d-4189-8a18-08525df38c38)
+
+<strong>Задание № 25: </strong>![5](https://github.com/user-attachments/assets/3b02b0bc-a641-4b04-8285-c72cfdc9c1ed)
+
+<strong>Задание № 26: </strong>![6](https://github.com/user-attachments/assets/9ae93ed6-4b50-4f93-b7d9-ebccb92281a8)
+
+<strong>Задание № 27: </strong>![7](https://github.com/user-attachments/assets/453aa834-be1b-4813-8005-acaf8aa5fed9)
+
+<strong>Задание № 28: </strong>![8](https://github.com/user-attachments/assets/3ac9a3a3-0fd0-4363-bd28-b05c996ea7b3)
+
+<strong>Задание № 29: </strong>![9](https://github.com/user-attachments/assets/819e3e67-c9b8-40f6-856a-f7c1b869e92c)
+
