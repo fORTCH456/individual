@@ -1,6 +1,6 @@
 # DARTPRAC7733
 <strong>Задание № 1: </strong>![5264805735487889892](https://github.com/user-attachments/assets/2b4e8111-0964-4046-b8bc-9092b8210362)
-<strong>Задание № 2: </strong>5264805735487889891](https://github.com/user-attachments/assets/745f0945-5e18-47db-8001-1ba2173f39cf)
+<strong>Задание № 2: </strong>![5264805735487889891](https://github.com/user-attachments/assets/609740f1-5fc8-4caf-88fc-f1c529c7f2c4)
 <strong>Задание № 3: </strong>![5264805735487889890](https://github.com/user-attachments/assets/88010b0b-96fb-44f4-952d-4864504c7101)
 <strong>Задание № 4: </strong>![5264805735487889889](https://github.com/user-attachments/assets/e08eef27-32d4-4691-8892-b99a326f3e2a)
 <strong>Задание № 5: </strong>![5264805735487889888](https://github.com/user-attachments/assets/55add9aa-fec6-4775-9eed-d1b9ca8077ba)
